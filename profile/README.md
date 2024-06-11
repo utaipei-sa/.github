@@ -1,5 +1,3 @@
-![on-logo-blue](https://github.com/utaipei-sa/.github/assets/61136202/b4924366-0450-4264-8bb1-d0b4764f6247)
-
 # 臺北市立大學學生會
 **University of Taipei Student Association (UTSA)**
 
